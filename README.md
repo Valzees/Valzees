@@ -17,7 +17,7 @@
 
 ![688325396386807914](https://discord.c99.nl/widget/theme-3/688325396386807914.png) &ensp;
 
-<img width="200" src="https://im4.ezgif.com/tmp/ezgif-4-3b55e8b35a.gif"> &ensp;
+
 
 
 <h3 align="left">What i am learning :</h3>
